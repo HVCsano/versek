@@ -1,2 +1,0 @@
-# versek
-H O - Versek
